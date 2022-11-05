@@ -1,4 +1,5 @@
 # NineTails
 
-Valar Dohaeris Valar morgulis
+Valar Dohaeris Bravos Thousand Faced God
+
 
