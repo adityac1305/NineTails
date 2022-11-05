@@ -1,4 +1,4 @@
 # NineTails
 
-Valar Dohaeris 
+Valar Dohaeris Bravos Thousand Faced God
 
